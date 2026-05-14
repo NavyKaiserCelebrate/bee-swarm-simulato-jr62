@@ -1,4 +1,4 @@
-
+Get ahead in bee swarm simulator with top Scripts for bee swarm simulator, featuring infinite resources and private server access. Download now to dominate every match with ease
 
 
 
